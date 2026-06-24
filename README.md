@@ -1,2 +1,2 @@
 # my_CV
-Academic CV of Vipin N
+Academic CV of Dr. Vipin N, PhD
